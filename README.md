@@ -14,7 +14,7 @@
   <summary> ⎯⎯⎯⎯⎯ ⠀⠀ABOUT ME        ⠀‛   ⋄</summary>
   <table>
   <tr>
-    <td> HI! Ty for checking out my GitHub :,) My name's Laniidae , you can also call me Amsel. I'm a multifandom artist / rper , some of my fandoms are as listed : IN STARS AND TIME , slay the princess, scarlet hollow , MCYT ( generalized ) , POKEMON , DELTARUNE , fnaf , PHIGHTING , tangle tower / mermaid mask , and then some ... Some of my favorite music artists include : wolf parade , of montreal , and one , crane wives , cuarteto de nos , miranda! , black box recorder ... AMONG OTHERS :-) </td>
+    <td> HI! Ty for checking out my GitHub :,) My name's Laniidae , you can also call me Amsel. I'm a multifandom artist / rper , some of my fandoms are as listed : IN STARS AND TIME , slay the princess, scarlet hollow , MCYT ( generalized ) , POKEMON , DELTARUNE , fnaf , PHIGHTING , tangle tower / mermaid mask , WoF & Warriors and then some ... Some of my favorite music artists include : wolf parade , of montreal , and one , crane wives , cuarteto de nos , miranda! , black box recorder ... AMONG OTHERS :-) ..! IM ALSO A REALLY BIG FAN OF BIRDS hi Shrikes in specific but generally all birds </td>
   </tr>
 </table>
 </details>
