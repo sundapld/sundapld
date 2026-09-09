@@ -9,4 +9,4 @@ THIS IS A WORK IN PROGREES....
 <br>
 <br>
 <br clear="left"/>
-<img width="1280" height="768" alt="image" src="https://github.com/user-attachments/assets/41bedf68-8831-4470-9995-dec8a5863dba" />
+<img width="1210" height="708" alt="image" src="https://github.com/user-attachments/assets/41bedf68-8831-4470-9995-dec8a5863dba" />
