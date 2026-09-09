@@ -22,7 +22,7 @@
   <summary>BEFORE YOU INTERACT    ⠀ ᷃ ⠀⠀🍃</summary>
     <table>
   <tr>
-    <td>   Diagnosed Autistic and suspecting to have ADHD , I'm a bit slow and I sometimes struggle with tone so I ask that you're patient with me! I LOVE meeting new people and interacting with others pls never be afraid to say hi to me , I'm just a bit asocial and tend to get overwhelmed easily. C+H ON ALWAYS , I'm usually offtab so if you wanna talk WHISPER TO ME !! I'll be waayyy more likely to see it. Please take no offense if I leave , my internet tends to be pretty ... shoddy , and I tend to get busy throughout my day.
+    <td>   Diagnosed Autistic and suspecting to have ADHD , I'm a bit slow and I sometimes struggle with tone so I ask that you're patient with me! I LOVE meeting new people and interacting with others pls never be afraid to say hi to me , I'm just a bit asocial and tend to get overwhelmed easily. C+H ON ALWAYS , I'm usually offtab so if you wanna talk WHISPER TO ME !! I'll be waayyy more likely to see it. Please take no offense if I leave , my internet tends to be pretty ... shoddy , and I tend to get busy throughout my day ,, Otherwise feel free to add me on discord @ sundapld X)
  </td>
   </tr>
 </table>
