@@ -1,7 +1,7 @@
 <img width="840" height="70" alt="image" src="https://github.com/user-attachments/assets/c7e3821e-3e49-41c1-b6ba-6defc2b1a19b" />
 <br><img width="840" height="120" alt="image" src="https://github.com/user-attachments/assets/397e25a2-da51-436f-bb3b-569bed7a79a2" />
 
-▌⠀⠀BEST⠀⠀VIEWED⠀⠀ON⠀⠀PC  ┄─┉⠀
+▌⠀⠀WORLDS⠀⠀BROKEST⠀⠀LEAFEON⠀⠀FAN  ┄─┉⠀
 <img align="left" width="460" height="440" alt="image" src="https://github.com/user-attachments/assets/15b26ad7-a817-4ba0-8e5a-8519ed17515c" />
 <br>
 <img width="155" height="120" alt="image" src="https://github.com/user-attachments/assets/d23fd927-bf25-4245-8b4c-9161d3815379" /> <img width="130" height="120" alt="image" src="https://github.com/user-attachments/assets/f9490dec-c494-4bc0-bfb6-a08cc9cdba38" />
