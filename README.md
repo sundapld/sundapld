@@ -22,8 +22,7 @@
   <summary>BEFORE YOU INTERACT    ⠀ ᷃ ⠀⠀🍃</summary>
     <table>
   <tr>
-    <td>   Diagnosed Autistic and suspecting to have ADHD , I'm a bit slow and I sometimes struggle with tone so I ask that you're patient with me! I LOVE meeting new people and interacting with others pls never be afraid to say hi to me , I'm just a bit asocial and tend to get overwhelmed easily. C+H ON ALWAYS , I'm usually offtab so if you wanna talk WHISPER TO ME !! I'll be waayyy more likely to see it. Please take no offense if I leave , my internet tends to be pretty ... shoddy , and I tend to get busy throughout my day ,, Otherwise feel free to add me on discord @ sundapld X)
- </td>
+    <td>   Diagnosed Autistic and suspecting to have ADHD , I'm a bit slow and I sometimes struggle with tone so I ask that you're patient with me! I LOVE meeting new people and interacting with others pls never be afraid to say hi to me , I'm just a bit asocial and tend to get overwhelmed easily. C+H ON ALWAYS , I'm usually offtab so if you wanna talk WHISPER TO ME !! I'll be waayyy more likely to see it. Please take no offense if I leave , my internet tends to be pretty ... shoddy , and I tend to get busy throughout my day ,, Feel free to add me on discord @ sundapld X) Just lmk who you were and that you found me on PT LOL </td>
   </tr>
 </table>
 </details>
@@ -31,7 +30,7 @@
   <summary>⠀ ⃜ ⠀ ⠀⠀⸎⠀ DO     NOT       INTERACT</summary>
     <table>
   <tr>
-    <td> Basic DNI criteria , honestly don't be a weirdo nor a creep. I BLOCK freely ,, Just generally have common sense Yk? -15 I ask you don't dm me , if you find me in any public spaces though feel free to int </td>
+    <td> Basic DNI criteria , honestly don't be a weirdo nor a creep. I BLOCK freely ,, Just generally have common sense Yk? -15 I ask you don't dm me , you're on thin ice in public spaces. </td>
   </tr>
 </table> 
 </details>
