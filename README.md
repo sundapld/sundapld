@@ -31,7 +31,7 @@
   <summary>⠀ ⃜ ⠀ ⠀⠀⸎⠀ DO     NOT       INTERACT</summary>
     <table>
   <tr>
-    <td> Basic DNI criteria , honestly don't be a weirdo nor a creep. I BLOCK freely ,, Just generally have common sense Yk? </td>
+    <td> Basic DNI criteria , honestly don't be a weirdo nor a creep. I BLOCK freely ,, Just generally have common sense Yk? -15 I ask you don't dm me , if you find me in any public spaces though feel free to int </td>
   </tr>
 </table> 
 </details>
